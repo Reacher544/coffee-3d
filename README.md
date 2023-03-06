@@ -5,5 +5,5 @@ https://reacher544.github.io/coffee-3d/
 
 thank u for support
 
-buy me some coffee <a href="https://ko-fi.com/reacher544">Coffee</a>
+buy me some coffee <a href="https://www.buymeacoffee.com/Reach3r">Coffee</a>
 
